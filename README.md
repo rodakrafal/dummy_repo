@@ -35,3 +35,6 @@ I mean| what is his deal? I am right?
 - [X] Shrek kerhS Shrek kerhS 
 
 ![shrek, just shrek](https://bi.im-g.pl/im/52/b2/14/z21700946Q,Shrek.jpg)
+
+
+TO SOBIE DODAJE
